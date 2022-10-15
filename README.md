@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lycalague20
 - 👀 I’m interested in photography and video editing
-- 🌱 I’m love watching k-dramas
+- 🌱 I love watching k-dramas
 
 
 <!---
